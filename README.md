@@ -4,4 +4,4 @@ mais no link whasapwbe.com
 
 tem zap?
 
-siga-me nas redes sociais
+siga-me nas redes sociais por favor!
